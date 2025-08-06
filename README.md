@@ -1,4 +1,4 @@
-# ***Olá, me chamo*** C🅰️I🅾️.
+# ***Olá, me chamo*** Caio.
 ## **Futuro**🔙🔚
 Trabalhei durante 5 anos como técnico em informática, espero fazer uma graduação e uma especialização na área da tecnologia, para contribuir com a comunidade tecnológica.
 
